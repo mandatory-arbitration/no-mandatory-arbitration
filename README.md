@@ -13,7 +13,9 @@ If you've seen a recent contract from one of these companies recently, and your 
 ### Discussion and other reads
 
 [Consumer Advocates - Fight Forced Arbitration](https://www.consumeradvocates.org/for-consumers/arbitration)
+
 [American Associate for Justice - Forced Arbitration](https://www.justice.org/what-we-do/advocate-civil-justice-system/issue-advocacy/forced-arbitration-0)
+
 [The Employee Rights Advocacy Institute For Law & Policy - Ending Forced Arbitration In The Workplace](http://emprights.electricembers.net/our-work/ending-forced-arbitration-in-the-workplace/)
 
 ---
